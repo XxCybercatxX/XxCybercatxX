@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @XxCybercatxX
-- 💞️ Ilove cooking
+- 💞️ I love cooking
 - 📫 How to reach me arwensshadow@googlemail.com
 .
 
